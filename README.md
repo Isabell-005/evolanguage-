@@ -105,3 +105,6 @@ Near-native fluency. Advantage for **management**, **executive**, and high-level
 # 4️⃣ Embassy Templates (Download & Use)
 
 ## **📄 1. Template – Cover Letter to the Embassy**
+
+➡️ Learn more about our **visa-suitable German courses (A1–C1)** here:  
+[Evolanguage Visa Information](https://evolanguage-shop.de/pages/visa)
